@@ -1,6 +1,6 @@
 ## Hi there 👋I'm Prathima Badavath 👋
 
-🎯 Final Year B.Tech CSE | Seeking SDE Roles - 2027 Batch
+🎯 Final Year B.Tech CSE 1st year @ gcet | learning & building in public | 2030 Batch
 📍 Hyderabad | Open to Work
 
 ---
